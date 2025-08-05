@@ -46,7 +46,7 @@ As a student, I embrace **continuous learning** and **practical exploration**. E
 
 ---
 
-### Certifications
+### **Certifications Obtained**
 
 | | | | | | |
 |:--:|:--:|:--:|:--:|:--:|:--:|
